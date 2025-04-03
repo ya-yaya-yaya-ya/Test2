@@ -1,3 +1,0 @@
-dwd
-sasq
-ff
